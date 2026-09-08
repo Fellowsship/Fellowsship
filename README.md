@@ -11,7 +11,7 @@ How to reach me: https://www.linkedin.com/in/kieran-henry-fellows-329404161
 Fun Facts:
 - I'm a twin
 - The outdoors is my second home (just hiked Mt.Fuji)
-- I'm a One Piece fan 
+- I'm a One Piece anime fan 
 
 <!--
 **Fellowsship/Fellowsship** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
